@@ -1,4 +1,3 @@
-i couldnt get the .jar file on the download link on the top 👆 youll c a file called myua client download that file and have fun
 
 
 
